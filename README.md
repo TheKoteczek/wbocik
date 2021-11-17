@@ -1,4 +1,4 @@
-# **IMPORTANT**
+# **WAŻNE**
 
 **Make Sure You Give Credit.. Thank You**
 
